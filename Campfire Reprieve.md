@@ -74,10 +74,36 @@ Everyone's needs seen to, Valus finally allowed himself to relax a little. He la
 
 "All the time. Not sure why."
 
-Sebastian chimed in, "We may have to start revising our impression of you, Valus." Sebastian turned to Brisket, "You missed it. Valus made an attempt at something approximating a joke while you were out foraging."
+Sebastian chimed in, "We may have to start revising our impression of you, Valus." He turned to Brisket, "You missed it. Valus made an attempt at something approximating a joke while you were out foraging."
 
 Brisket exhaggerated his shocked reaction, "Ye don' say? Our Valus, Mister Stoneheart, was funny?"
 
 "I didn't say that," Sebastian said. "He made an attempt. It was anything but funny."
 
-Valus shot Sebastian a sour look as Brisket laughed around the berries in his mouth. Sebastian held his hand out and offered Valus a slice of his mango. Valus took the fruit with a nod of thanks.
+Valus shot Sebastian a sour look as Brisket laughed around the berries in his mouth. Sebastian held his hand out and offered Valus a slice of his mango. Valus took the fruit with a nod of thanks. They ate quietly for a while. The only sound was the popping campfire, as if it couldn't stand the silence and had to speak for itself.
+
+Finally, Brisket spoke, his voice somber, "Do ya think a war's comin'?" It was a long time before anyone responded.
+
+"Wars have been fought over less than the death of a nephew," Sebastian said. "With King Edward's legendary temper, I am astonished that one has not been declared already."
+
+"Not too surprising," Valus replied. "Queen Cassandra and Chancellor Bartholomew do a fine job keeping the king from going to war with anyone who dares walk on his grass. Should be fine for a while."
+
+Sebastian leaned toward the fire, excited at the prospect of a good debate. "Yes, but, you forget. The Visians have been attempting to acquire and control parts of the trade routes King Edward uses to supply his troops for years now. The tension between King Edward and King Artigian has always been high."
+
+Shevar chimed in, "But Visians say they not kill little nephew..."
+
+"Aaah, but that is the rub, is it not? It hardly matters what actually happened. What matters is what the kings *think* happened. Their perspective will influence their decisions, and their decisions will shape history," Sebastian folded his arms, clearly satisfied that his point had reached its conclusion.
+
+Brisket looked worried, "Then whut did we do? Was it the right thing, or not?"
+
+Valus looked Brisket in the eyes, "No way for us to know. All we did was secure one trade route as best we could with as little killing as we could manage. That'll have to be enough."
+
+"Enough for what?"
+
+Valus looked up at the stars, "Enough that, if we are judged at the end, that we aren't found wanting."
+
+The group was silent again for a long while. It was rare that any of them, save Sebastian, were thoughtful at all. They were silent for a full five minutes before a rumbling noise broke the silence. Valus instinctively reached for his sword, but only for a second, before he realized the source of the noise. Shevar, having found the talk of the future and the afterlife boring after her small contribution, had fallen asleep and was snoring loudly.
+
+The other three looked at each other and smiled. Valus looked back up at the stars. Whatever history would think about what they had done, he was satisfied that they had done their job well.
+
+They would sleep well tonight, with full bellies under a peaceful starry sky, for now.
