@@ -106,4 +106,4 @@ The group was silent again for a long while. It was rare that any of them, save 
 
 The other three looked at each other and smiled. Valus looked back up at the stars. Whatever history would think about what they had done, he was satisfied that they had done their job well.
 
-They would sleep well tonight, with full bellies under a peaceful starry sky, for now.
+They would sleep well tonight, with full bellies under a peaceful starry sky, for now. Tomorrow would decide whether they did the right thing.
